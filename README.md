@@ -94,9 +94,7 @@ April 2025 – Selected a self-paced, industry-recognized program to build found
 - Committed to SAT Mastery with a 1600 Goal
 February 2025 – Set a high personal academic standard as part of college prep
  ## Gallery:
-### 📜 Google Cybersecurity Professional Certificate
-![Google Cybersecurity Certificate](https://github.com/your-username/repository-name/raw/D:/Courses/Google Security Professional Certifications)
- ## Goals:
+
 
   **Short-Term (Next 3–6 Months):**
 
